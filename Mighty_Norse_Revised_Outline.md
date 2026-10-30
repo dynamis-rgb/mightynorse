@@ -170,7 +170,7 @@ A blacksmith’s second son leaves Möre seeking an independent name and livelih
 
 ## Chapter 9 — Return to Liubice and the Northbound Decision
 
-**Time:** March–April 868; March 25 arrival and March 31 departure decision remain provisional anchors.
+**Time:** March–May 868; May 1 arrival and May 18 departure decision remain provisional anchors.
 **Status:** Planned.
 
 - Return to a visibly changed Liubice.
@@ -191,7 +191,7 @@ A blacksmith’s second son leaves Möre seeking an independent name and livelih
 - Drifa gives birth aboard ship; Milena assists despite her decline.
 - Preserve the intended contrast of new life and approaching loss without implying that illness obeys a chosen timetable.
 - Milena offers final guidance to Friðríkr, Drifa, and Ljótr. Its finality becomes apparent only afterward.
-- She dies during the journey; May 2 is the current provisional date.
+- She dies during the journey; June 1 is the current provisional date.
 - Further travel and recruitment include Guðröðr, Gnúpa, and Rikiza, with a clear reason for each addition and delay.
 - Return to Möre, currently planned for October.
 - Defend the homeland using relationships, tactics, and practical knowledge developed abroad.
